@@ -1,3 +1,3 @@
-Welcome to share the knowledge you learn today! Click here![Uploading 1C7C572C.png…]()
-
+Welcome to share the knowledge you learn today! 
+Click here：
 https://todayilearned-zongyingguo.netlify.app/
